@@ -73,3 +73,6 @@ watch my yaoi...do it...
 <p align="center">
 https://youtu.be/fB3sUW6isXg?si=W8UwAyq-bH6thhxq
 </p>
+
+[![metal-gear-bbkaz-1.gif](https://i.postimg.cc/D0MsCr06/metal-gear-bbkaz-1.gif)](https://postimg.cc/9wyr0qGw)
+
