@@ -1,4 +1,4 @@
-### !!! [![](https://i.postimg.cc/DzmJjfSg/tumblr-e62978682663e569d3e2c79d29645b3a-f4225c61-75.webp)](https://postimg.cc/945QzhtR) WELCOME TO . . . . . . [![](https://i.postimg.cc/v85q4pq4/tumblr-2d202f47b6a6a80697f349c3c4758b46-19ebb766-100-1.webp)](https://postimg.cc/Wtb6KfPV)[![](https://i.postimg.cc/QdKWtrmP/d1l6x8x-d62ab399-7668-4c95-92d2-25c71234166a.png)](https://postimg.cc/RW90syjQ) [![tumblr-547832720696f332d7851397f5ffc194-c4fd09c8-540.png](https://i.postimg.cc/dVCnygp0/tumblr-547832720696f332d7851397f5ffc194-c4fd09c8-540.png)](https://postimg.cc/LJHzdQHd)
+### !!! [![](https://i.postimg.cc/DzmJjfSg/tumblr-e62978682663e569d3e2c79d29645b3a-f4225c61-75.webp)](https://postimg.cc/945QzhtR) WELCOME TO . . . . . . [![](https://i.postimg.cc/v85q4pq4/tumblr-2d202f47b6a6a80697f349c3c4758b46-19ebb766-100-1.webp)](https://postimg.cc/Wtb6KfPV)[![](https://i.postimg.cc/QdKWtrmP/d1l6x8x-d62ab399-7668-4c95-92d2-25c71234166a.png)](https://postimg.cc/RW90syjQ) [![](https://i.postimg.cc/dVCnygp0/tumblr-547832720696f332d7851397f5ffc194-c4fd09c8-540.png)](https://postimg.cc/LJHzdQHd)
 [![](https://i.postimg.cc/vmkCbG4B/New-Project.png)](https://postimg.cc/QBgfqGkG)
 
 <p align="center">
@@ -24,9 +24,9 @@ DNI!!
 </p>
 
 [![](https://i.postimg.cc/63JHtPJD/tumblr-bb9593a8a7eee19c4faa526389961342-442dea2e-75.webp)](https://postimg.cc/bGg0R3vT) DONT INTERACT IF U FIT [BASIC DNI](https://dni-criteria.carrd.co/) , ARE A PROSHIPPER , SUPPORT GEN AI, SHIP RAISUNE/SOLIMILLER , UNDER 13[![](https://i.postimg.cc/6qZPxGQf/tumblr-8f391bd38404d88c6c23cd00e61f9f8f-e60f1aca-1280.png)](https://postimg.cc/m1bjQkCP)
-
+-
 <p align="center">
-MY SMALL.....STUFF...SHRINE...
+MY SMALL.....THINGIES...SHRINE...
 </p>
 <p align="center">
   <img src="https://i.postimg.cc/qR2Z8YLM/tumblr-e402843597ad902008f51d85f8bd0764-727240cf-250.webp" alt="yaoi"/>
@@ -36,7 +36,7 @@ MY SMALL.....STUFF...SHRINE...
 [![](https://i.postimg.cc/T2HshL3T/metal-gear-mgs.gif)](https://postimg.cc/QV1myM7z) [![](https://i.postimg.cc/pXVncCNB/ezgif-84d9b99f6ceddc.gif)](https://postimg.cc/23J6V4Sq) [![](https://i.postimg.cc/ry5wGrKN/ezgif-872a29d3571ac5.gif)](https://postimg.cc/rzFTMzGD) [![](https://i.postimg.cc/wMYbdv8D/e47.gif)](https://postimg.cc/XGxgfnvv) [![](https://i.postimg.cc/wM9cVsY4/I-love-shitty-instant-coffee.gif)](https://postimg.cc/LY0145Xj) [![](https://i.postimg.cc/7PBTcR3Z/66.gif)](https://postimg.cc/F1LRkDCM) [![](https://i.postimg.cc/pdzPQmZF/d1.gif)](https://postimg.cc/mcZxB2KL) [![](https://i.postimg.cc/bvwwPyHD/dablinkie.gif)](https://postimg.cc/k2LmFdHq)
 
 ![](https://github.com/user-attachments/assets/e75e2b72-15a5-4b5e-9ccd-071d59300ca2) ![](https://github.com/user-attachments/assets/e00a9482-96ea-471b-b902-e8ebcb500c02) ![](https://github.com/user-attachments/assets/8306a5af-0a82-459d-b1e4-771b2c6d06de) ![](https://github.com/user-attachments/assets/352ad36d-620c-466b-acd6-89ee149319b6) ![](https://github.com/user-attachments/assets/23a2a3cb-d390-4692-bbc6-a01a34a987cd) ![](https://github.com/user-attachments/assets/4acda7dd-2689-4e58-beb7-d783ae8eed10) ![](https://github.com/user-attachments/assets/d163cf88-b492-464f-82db-784caeeaa63b) ![](https://github.com/user-attachments/assets/0df8046f-4774-41c5-9c61-078d161b6dd3)
-
+-
 
 
 
@@ -66,7 +66,7 @@ MY SMALL.....STUFF...SHRINE...
 
 
 <p align="center">
-watch my yaoi...do it...
+watch my yaoi...do it... 
 </p>
 
 <p align="center">
