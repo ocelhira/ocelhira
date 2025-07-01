@@ -17,7 +17,7 @@ BASIC INFO...
 [![](https://i.postimg.cc/cLkHpMWy/tumblr-aa1cf9f9617fa949d98aa38d8bd1ca60-3413b377-1280.png)](https://postimg.cc/LJf2fPhN) IM ECHO!!! IM 15!! I LOVE MGS,,,,IM BI AND AGENDER!!!!!!! FEEL FREE TO INTERACT WITH ME ANY TIME...BUT NO SEXUAL AND ROMANTIC STUFF （；´д｀）ゞ I ALSO LIKE DISCO ELYSIUM,FNAF,HOMESTUCK,HALF LIFE,DMC,UNDERTALE+DELTARUNE,TSP,ACE ATTORNEY AND ALOT OF OTHER THINGS... JUST ASK!! [![](https://i.postimg.cc/rs08S7bf/tumblr-cffea3aa0bf52003ee9ffe38f9c89dd6-437d92f1-75.webp)](https://postimg.cc/xNQDQp9m)
 
 <p align="center">
-DNI!! 
+DNI!!
 </p>
 <p align="center">
   <img src="https://i.postimg.cc/qR2Z8YLM/tumblr-e402843597ad902008f51d85f8bd0764-727240cf-250.webp" alt="yaoi"/>
