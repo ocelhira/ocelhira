@@ -1,16 +1,17 @@
-## Hi there 👋
+![tumblr-2d202f47b6a6a80697f349c3c4758b46-19ebb766-100-1.webp](https://postimg.cc/Wtb6KfPV) ![d1l6x8x-d62ab399-7668-4c95-92d2-25c71234166a.png](https://postimg.cc/RW90syjQ) !image 
+ ![tumblr-547832720696f332d7851397f5ffc194-c4fd09c8-540.png](https://postimg.cc/PpcGgvNn)
+-
+![New-Project.png](https://postimg.cc/QBgfqGkG)
+-
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/f24e7275-3e2a-4877-9f86-70b7aa246901" alt="yaoi"/>
+</p>
 
-<!--
-**ocelhira/ocelhira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### MY INTRODUCTION  ! ! !   [![New-Project-1.png](https://i.postimg.cc/fyNzWcVJ/New-Project-1.png)](https://postimg.cc/FdT5DJg4)  ![d9jdci7-08a5aed3-fd63-4230-9aef-df42594e23ac-1.png](https://postimg.cc/NyrKhBCS) ![d9uce98-fcc36457-619b-4789-b142-0481e0a75663.png](https://postimg.cc/sGZyn4jh) 
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+//  
+</p>
+<p align="center">
+  <img src="https://i.postimg.cc/qR2Z8YLM/tumblr-e402843597ad902008f51d85f8bd0764-727240cf-250.webp" alt="yaoi"/>
+</p>
