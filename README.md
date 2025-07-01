@@ -22,3 +22,5 @@ DNI!!
 <p align="center">
   <img src="https://i.postimg.cc/qR2Z8YLM/tumblr-e402843597ad902008f51d85f8bd0764-727240cf-250.webp" alt="yaoi"/>
 </p>
+
+[![](https://i.postimg.cc/63JHtPJD/tumblr-bb9593a8a7eee19c4faa526389961342-442dea2e-75.webp)](https://postimg.cc/bGg0R3vT) DONT INTERACT IF U FIT [BASIC DNI](https://dni-criteria.carrd.co/)
