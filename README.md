@@ -25,6 +25,8 @@ DNI!!
 
 [![](https://i.postimg.cc/63JHtPJD/tumblr-bb9593a8a7eee19c4faa526389961342-442dea2e-75.webp)](https://postimg.cc/bGg0R3vT) DONT INTERACT IF U FIT [BASIC DNI](https://dni-criteria.carrd.co/) , ARE A PROSHIPPER , USE/SUPPORT GEN AI, SHIP RAISUNE/SOLIMILLER , UNDER 13[![](https://i.postimg.cc/6qZPxGQf/tumblr-8f391bd38404d88c6c23cd00e61f9f8f-e60f1aca-1280.png)](https://postimg.cc/m1bjQkCP)
 
+[![](https://i.postimg.cc/T2HshL3T/metal-gear-mgs.gif)](https://postimg.cc/QV1myM7z) [![](https://i.postimg.cc/pXVncCNB/ezgif-84d9b99f6ceddc.gif)](https://postimg.cc/23J6V4Sq) [![](https://i.postimg.cc/ry5wGrKN/ezgif-872a29d3571ac5.gif)](https://postimg.cc/rzFTMzGD)
+
 <p align="center">
 - 
 </p>
