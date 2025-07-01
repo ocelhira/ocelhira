@@ -25,8 +25,7 @@ DNI!!
 
 [![](https://i.postimg.cc/63JHtPJD/tumblr-bb9593a8a7eee19c4faa526389961342-442dea2e-75.webp)](https://postimg.cc/bGg0R3vT) DONT INTERACT IF U FIT [BASIC DNI](https://dni-criteria.carrd.co/) , ARE A PROSHIPPER , USE/SUPPORT GEN AI, SHIP RAISUNE/SOLIMILLER , UNDER 13[![](https://i.postimg.cc/6qZPxGQf/tumblr-8f391bd38404d88c6c23cd00e61f9f8f-e60f1aca-1280.png)](https://postimg.cc/m1bjQkCP)
 
-[![](https://i.postimg.cc/T2HshL3T/metal-gear-mgs.gif)](https://postimg.cc/QV1myM7z) [![](https://i.postimg.cc/pXVncCNB/ezgif-84d9b99f6ceddc.gif)](https://postimg.cc/23J6V4Sq) [![](https://i.postimg.cc/ry5wGrKN/ezgif-872a29d3571ac5.gif)](https://postimg.cc/rzFTMzGD)
-
+[![](https://i.postimg.cc/T2HshL3T/metal-gear-mgs.gif)](https://postimg.cc/QV1myM7z) [![](https://i.postimg.cc/pXVncCNB/ezgif-84d9b99f6ceddc.gif)](https://postimg.cc/23J6V4Sq) [![](https://i.postimg.cc/ry5wGrKN/ezgif-872a29d3571ac5.gif)](https://postimg.cc/rzFTMzGD) [![](https://i.postimg.cc/wMYbdv8D/e47.gif)](https://postimg.cc/XGxgfnvv) [![](https://i.postimg.cc/wM9cVsY4/I-love-shitty-instant-coffee.gif)](https://postimg.cc/LY0145Xj) [![](https://i.postimg.cc/7PBTcR3Z/66.gif)](https://postimg.cc/F1LRkDCM) [![](https://i.postimg.cc/pdzPQmZF/d1.gif)](https://postimg.cc/mcZxB2KL) [![](https://i.postimg.cc/bvwwPyHD/dablinkie.gif)](https://postimg.cc/k2LmFdHq) [![](https://i.postimg.cc/cCZMmknN/b2b186af169c63836dd43339bb7b149ae378c4d6.gif)](https://postimg.cc/YGnW23RX)
 <p align="center">
 - 
 </p>
